@@ -1,12 +1,14 @@
 <!--
  * @Description:
- * @telegram: @sd_msgbot
+ * @telegram: @tghzsx_bot
 -->
 ## 声明
 <div align="center">
 【电报推荐】10000+ 优质Telegram群组推荐、频道和机器人，精心筛选，让您轻松玩转Telegram。
 
 ❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
+
+❗️❗️❗️存在️广告内容，请自行辨别真假管好自己的钱包，出问题本站概不负责❗️❗️❗️
 
 ### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人
 商务合作：[sobot1024@gmail.com](mailto:sobot1024@gmail.com)或[@tghzsx_bot](https://t.me/tghzsx_bot)
@@ -18,11 +20,11 @@
 
 </div>
 
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) | [![@找妹子](https://i.imgur.com/hFz9t0f.png)<br>❤️找妹子❤️](https://t.me/+zsmHkWJeSXIzODJl)  |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
 |:---:|:---:|:---:|
-| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715) |  [![@频道转发小助手](https://i.imgur.com/58e8neu.png)<br>@频道转发小助手](https://t.me/tgzfxzsbot) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896)|
+| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715) |  [![@频道转发小助手](https://i.imgur.com/58e8neu.png)<br>@频道转发小助手](https://t.me/tgzfxzsbot) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupiansoso)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesesousuo) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangdarknet)|
-| [![中文搜索①](https://i.imgur.com/OWV7rdZ.png)<br>中文搜索①](https://t.me/sousuo20w)  |  [![中文搜索②](https://i.imgur.com/xn0EiEy.png)<br>中文搜索②](https://t.me/qnssking) |[![中文搜索③](https://i.imgur.com/SA6Oq0p.png)<br>资源搜索](https://t.me/resource4)|
+| [![中文搜索①](https://i.imgur.com/OWV7rdZ.png)<br>中文搜索①](https://t.me/sousuo20w)  |  [![中文搜索②](https://i.imgur.com/xn0EiEy.png)<br>中文搜索②](https://t.me/qnssking) |[![景福宫](https://i.imgur.com/xqVLMHs.png)<br>景福宫【找妹子】](https://t.me/+bJkN6Cz7WIQ5YjQ9)|
 
 </table>
 
@@ -44,8 +46,9 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
-*   🔞推特|女菩萨❤️：[https://t.me/+Kt9f9FjPl3oyYTE1](https://t.me/+Kt9f9FjPl3oyYTE1)
-*   🔞眼镜反差婊❤️：[https://t.me/+33RCsJjiLmhiMzg1](https://t.me/+33RCsJjiLmhiMzg1)
+*   🔞性欲至上❤️：[https://t.me/+zsmHkWJeSXIzODJl](https://t.me/+zsmHkWJeSXIzODJl)
+*   🔞推特|女菩萨❤️：[https://t.me/+1iPoKtB1IYkzNWU1](https://t.me/+1iPoKtB1IYkzNWU1)
+*   🔞眼镜反差婊❤️：[https://t.me/+kvrG5fud-_5lZDc1](https://t.me/+kvrG5fud-_5lZDc1)
 *   🔞不良少女❤️：[https://t.me/+55GiZrZbg09jMGUx](https://t.me/+55GiZrZbg09jMGUx)
 *   ️💰前海联盟福利群💰：[https://t.me/+khxzHw7kGRJiYTM0](https://t.me/+khxzHw7kGRJiYTM0)【群里每天抽100份猪脚饭加发言奖励】
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
@@ -56,6 +59,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
+*   Telegram 🔞反差资源搜索🔥:[https://t.me/resource4](https://t.me/resource4)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwangbots](https://t.me/anwangbots)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupiantg](https://t.me/soupiantg)
 *   Telegram 🔥全网吃瓜黑料搜索群组🔥:[https://t.me/sousuo91p](https://t.me/sousuo91p)
@@ -91,7 +95,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 ### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-|  我   |   [@sd_msgbot](https://t.me/sd_msgbot)  | 36U一年 |
+|  我   |   [@tghzsx_bot](https://t.me/tghzsx_bot)  | 36U一年 |
 | 会员机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人
 
@@ -116,11 +120,15 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | :---        |    :----:   |          :--- |
 | 起点交易机器人      | [@qdbot](https://t.me/qdbot?start=invite_533296)       |网络骗子太多，需要担保平台，保证双方利益的交易机器人 |
 | 创建自己的机器人      | [@BotFather](https://t.me/BotFather)       |可以创建和管理专属机器人的地方，开发者会获得一个API令牌，用于控制机器人并接入Telegram API  |
+| 群管理机器人      | [@nmnmfunbot](https://t.me/nmnmfunbot)       |中文用户使用最多的群管理机器人，几乎什么功能都有  |
 | 群管理机器人      | [@GroupHelpBot](https://t.me/GroupHelpBot)       |根据自己群组的需要设定一系列的自动化内容，如欢迎语、跳转到社媒账号或独立站、删除信息、警告用户等  |
-| 群管理机器人      | [@nmbot](https://t.me/nmnmfunbot)       |超级好用的国产群管理机器人，免费好用的功能太多了  |
+| 群管理机器人      | [@WeGroupRobot](https://t.me/WeGroupRobot)       |专为管理和优化群组聊天体验而设计。它可以帮助群组管理员简化日常管理任务，提高群组的互动质量 |
+| 双向机器人      | [@LivegramBot](https://t.me/LivegramBot)       |可以免费创建属于自己的双向机器人，解决账号无法主动发起会话的问题  |
 | 长消息杀手   | [@LongMessageKillerBot](https://t.me/LongMessageKillerBot)        | 最近长消息炸群很多，使用这个长消息杀手机器人可以防止炸群  |
 | 广告杀手   | [@GuangGaoShaShouBot](https://t.me/GuangGaoShaShouBot)        | 本机器人专业封杀中文广告内容以及广告号 |
-|  频道搬运机器人  | [@msg_get_bot](https://t.me/msg_get_bot?start=R0izrpNB)        | 破解频道/群组不允许转发机器人,频道主运营利器|
+|  频道搬运机器人  | [@msg_get_bot](https://t.me/msg_get_bot?start=K86QAr71)        | 破解频道/群组不允许转发机器人,频道主运营利器|
+|  ID查询机器人  | [@username_to_id_bot](https://t.me/username_to_id_bot)        | 查询用户ID、频道ID、群组ID|
+
 
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
@@ -128,7 +136,6 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 |SOSO|[@soso](https://t.me/sosoo?start=a_6294881820)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
 | 极搜JiSo | [@jiso](https://t.me/jiso?start=a_6294881820)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
 | 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_6294881820)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
-| 华夏搜索机器人     | [@huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)  | TG必备神器，找到您感兴趣的群组、频道和机器人！ |
 | ikuaiso     | [@ikuaisobot](https://t.me/ikuaisobot?start=7352210715)  | 帮你找到有趣的群、频道、视频、音乐、电影、新闻！ |
 | aiso搜索机器人     | [@aiso](https://t.me/aiso?start=telegram_6294881820)  | 查找群组、频道、影视、音乐或机器人。  |
 | 神马索引机器人      | [@smss](https://t.me/smss?start=spread_6294881820)       | 神马索引机器人，可以通过关键词查找  |
@@ -253,10 +260,16 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   PKC皮卡车:[https://t.me/topstyle996](https://t.me/topstyle996)
 *   Leeco-雪花社:[https://t.me/xuehuashe](https://t.me/xuehuashe)
 
+###### 脚本
+
+*   Bigo社区群:[https://t.me/bigo_tool](https://t.me/bigo_tool)
+*   Fragment账号实时报价:[https://t.me/Fragment_Monitor](https://t.me/Fragment_Monitor)
+
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
 
 *   每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Shadowsocks&Clash:[https://t.me/shadowsocks_clash](https://t.me/shadowsocks_clash)
+*   不良林:[https://t.me/buliang00](https://t.me/buliang00)
 *   搬瓦工 (BandwagonHost):[https://t.me/BandwagonHostUsers](https://t.me/BandwagonHostUsers)
 *   Surge 交流:[https://t.me/loveapps](https://t.me/loveapps)
 *   Surge Pro:[https://t.me/SurgePro](https://t.me/SurgePro)
