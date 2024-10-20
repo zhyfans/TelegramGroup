@@ -16,15 +16,15 @@
 电报**❗️中文昵称❗️**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
 
-### 商务合作：Banner广告位 200U/月，推荐位 50U/月，永久推荐位10000U
+### 商务合作：Banner广告位 200U/月，推荐位 50U/月，永久推荐位50000U
 
 </div>
 
 | [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) | [![@找妹子](https://i.imgur.com/hFz9t0f.png)<br>❤️找妹子❤️](https://t.me/+zsmHkWJeSXIzODJl)  |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
 |:---:|:---:|:---:|
-| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715) |  [![@频道转发小助手](https://i.imgur.com/58e8neu.png)<br>@频道转发小助手](https://t.me/tgzfxzsbot) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820)|
+| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://telegramchannels.github.io/) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupiansoso)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesesousuo) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangdarknet)|
-| [![中文搜索①](https://i.imgur.com/OWV7rdZ.png)<br>中文搜索①](https://t.me/sousuo20w)  |  [![中文搜索②](https://i.imgur.com/xn0EiEy.png)<br>中文搜索②](https://t.me/qnssking) |[![景福宫](https://i.imgur.com/xqVLMHs.png)<br>景福宫【找妹子】](https://t.me/+bJkN6Cz7WIQ5YjQ9)|
+| [![中文搜索①](https://i.imgur.com/dkYzSij.png)<br>中文搜索①](https://t.me/sosobo2)  |  [![中文搜索②](https://i.imgur.com/iGCudec.jpeg)<br>企业签名](https://t.me/jq886) |[![景福宫](https://i.imgur.com/xqVLMHs.png)<br>景福宫【找妹子】](https://t.me/+bJkN6Cz7WIQ5YjQ9)|
 
 </table>
 
@@ -48,13 +48,11 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
 *   🔞性欲至上❤️：[https://t.me/+zsmHkWJeSXIzODJl](https://t.me/+zsmHkWJeSXIzODJl)
 *   🔞推特|女菩萨❤️：[https://t.me/+1iPoKtB1IYkzNWU1](https://t.me/+1iPoKtB1IYkzNWU1)
-*   🔞眼镜反差婊❤️：[https://t.me/+kvrG5fud-_5lZDc1](https://t.me/+kvrG5fud-_5lZDc1)
 *   🔞不良少女❤️：[https://t.me/+55GiZrZbg09jMGUx](https://t.me/+55GiZrZbg09jMGUx)
 *   ️💰前海联盟福利群💰：[https://t.me/+khxzHw7kGRJiYTM0](https://t.me/+khxzHw7kGRJiYTM0)【群里每天抽100份猪脚饭加发言奖励】
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
 *   Telegram 🔥吃瓜吧|吃瓜中心🍉:[https://t.me/chiguabar](https://t.me/chiguabar)
-*   Telegram 🤖转发小助手🤖:[https://t.me/tgzfxzsbot](https://t.me/tgzfxzsbot)【破解私密频道无法保存转发下载等功能，涨粉神器】
 *   Telegram 🔞色色搜索吧🔥:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
 *   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
@@ -77,6 +75,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
+*   Telegram 大厂UI设计师:[https://t.me/photoshop8888](https://t.me/photoshop8888)【专业推广设计 PS/广告/电报/电商/亚马逊】
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 
@@ -88,7 +87,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 自动转发频道机器人(自动搬运别人频道内容到自己频道)：100U(源码+搭建)
 
-自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)，效果：[@diyichigua](https://t.me/diyichigua)
+自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)，效果：[@alidriver4k](https://t.me/alidriver4k)
 
 彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw ）
 
@@ -124,10 +123,14 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | 群管理机器人      | [@GroupHelpBot](https://t.me/GroupHelpBot)       |根据自己群组的需要设定一系列的自动化内容，如欢迎语、跳转到社媒账号或独立站、删除信息、警告用户等  |
 | 群管理机器人      | [@WeGroupRobot](https://t.me/WeGroupRobot)       |专为管理和优化群组聊天体验而设计。它可以帮助群组管理员简化日常管理任务，提高群组的互动质量 |
 | 双向机器人      | [@LivegramBot](https://t.me/LivegramBot)       |可以免费创建属于自己的双向机器人，解决账号无法主动发起会话的问题  |
+| 按钮机器人      | [@PostBot](https://t.me/PostBot)       | 可以在群组或者频道里面编辑按钮控件，用来挂链接或者打广告的神器 |
+| 查特皮皮鸡      | [@ZUOLUOTV_AI_BOT](https://t.me/ZUOLUOTV_AI_BOT)       |基于OpenAI和 Google Cloud AI Platform 的 Anti-Spam机器人，可以有效过滤文字、图片、贴纸等垃圾广告。 |
 | 长消息杀手   | [@LongMessageKillerBot](https://t.me/LongMessageKillerBot)        | 最近长消息炸群很多，使用这个长消息杀手机器人可以防止炸群  |
 | 广告杀手   | [@GuangGaoShaShouBot](https://t.me/GuangGaoShaShouBot)        | 本机器人专业封杀中文广告内容以及广告号 |
 |  频道搬运机器人  | [@msg_get_bot](https://t.me/msg_get_bot?start=K86QAr71)        | 破解频道/群组不允许转发机器人,频道主运营利器|
-|  ID查询机器人  | [@username_to_id_bot](https://t.me/username_to_id_bot)        | 查询用户ID、频道ID、群组ID|
+|  ID查询机器人  | [@username_to_id_bot](https://t.me/username_to_id_bot)        | 查询用户ID、频道ID、群组ID |
+|  ID查询机器人  | [@nminfobot](https://t.me/nminfobot)        | 转发一条聊天信息给我，快速查询对方 ID|
+|  短信轰炸机器人  | [@Carll_Bomb_bot](https://t.me/Carll_Bomb_bot?start=7439567495)        | 短信轰炸机器人，这你爱的人送上“祝福”。让你爱的人，“夜不能寐”|
 
 
 #### TG中文群组索引机器人bot
@@ -140,7 +143,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | aiso搜索机器人     | [@aiso](https://t.me/aiso?start=telegram_6294881820)  | 查找群组、频道、影视、音乐或机器人。  |
 | 神马索引机器人      | [@smss](https://t.me/smss?start=spread_6294881820)       | 神马索引机器人，可以通过关键词查找  |
 | 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=6294881820)        | 帮助您找到感兴趣的群组、频道和机器人！      |
-| TON索引     | [TonCnBot](https://t.me/TonCnBot?start=6294881820)       | 帮助您找到感兴趣的群组、频道和机器人！  |
+| TON索引  | [TonCnBot](https://t.me/TonCnBot?start=6294881820)       | 帮助您找到感兴趣的群组、频道和机器人！  |
 
 
 #### 群组抽奖机器人
@@ -245,6 +248,8 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | 给管理员发消息      | [@callAdminsBot](https://t.me/callAdminsBot)       | 给管理员发消息  |
 | 黑名单机器人      | [@hexlightning_bot](https://t.me/hexlightning_bot)       | 台灣人自己的黑名單機器人  |
 | 创建临时邮箱机器人   | [@DropmailBot](https://t.me/DropmailBot)        | 临时邮箱顾名思义是个临时的匿名邮箱，可以用来保护个人隐私和防止垃圾邮件      |
+| 创建临时邮箱机器人   | [@RustRssBot](https://t.me/RustRssBot)        | 中文 Telegram RSS 机器人     |
+| 解除频道消息在群组的置顶   | [@areply_bot](https://t.me/areply_bot)        | 自动解除频道消息在群组的同步置顶，附带群组日常维护常用小功能  |
 
 #### 参考资料
 - [BotoStore](https://botostore.com/) 一个专门收录telegram bot的国外网站，过滤了垃圾邮件和成人内容的bot
@@ -267,6 +272,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
 
+*   机场VPN导航站:[https://jichangvpn.github.io/](https://jichangvpn.github.io/)
 *   每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Shadowsocks&Clash:[https://t.me/shadowsocks_clash](https://t.me/shadowsocks_clash)
 *   不良林:[https://t.me/buliang00](https://t.me/buliang00)
@@ -389,7 +395,9 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Cuto 壁纸:[https://t.me/joinchat/BC6PtD89sEGgHKR28OtQVA](https://t.me/joinchat/BC6PtD89sEGgHKR28OtQVA)
 *   UpperSoft - 讨论组:[https://t.me/UpperSoftDiscuss](https://t.me/UpperSoftDiscuss)
 *   Mac 玩儿法茶馆:[https://t.me/waerfa](https://t.me/waerfa)
+*   APP喵-阿喵软件资源共享:[https://t.me/appmew](https://t.me/appmew)
 *   软件技术资源共享:[https://t.me/SharedResourcesplus](https://t.me/SharedResourcesplus)
+*   LIHAI 分享:[https://t.me/lihaiba](https://t.me/lihaiba)
 *   TelePlus 官方討論組:[https://t.me/TelePlus_Group](https://t.me/TelePlus_Group)
 *   MK 播放器:[https://t.me/MKPlayerApp](https://t.me/MKPlayerApp)
 *   畅邮（Cymail）电子邮箱客户端:[https://t.me/cyemail](https://t.me/cyemail)
@@ -447,23 +455,29 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 *   币圈日报:[https://t.me/bidaily](https://t.me/bidaily)
 *   币安官方中文群:[https://t.me/BinanceChinese](https://t.me/BinanceChinese)
+*   大漂亮的小伙伴:[https://t.me/giantcutie6688](https://t.me/giantcutie6688)
 *   Vultr 中文社群:[https://t.me/vultr_group](https://t.me/vultr_group)
 *   Newlearner 水群:[https://t.me/NewlearnerGroup](https://t.me/NewlearnerGroup)
 *   科技花:[https://t.me/zaihuachat](https://t.me/zaihuachat)
 *   谷歌交流社区・科技圈:[https://t.me/GoogleFans](https://t.me/GoogleFans)
+*   Bark反馈群:[https://t.me/joinchat/OsCbLzovUAE0YjY1](https://t.me/joinchat/OsCbLzovUAE0YjY1)
 *   逗比根据地:[https://t.me/doubi](https://t.me/doubi)
 *   中文输入法爱好者群:[https://t.me/IME_zhCN](https://t.me/IME_zhCN)
 *   少数派 sspai 社群 非官方:[https://t.me/sspai_group](https://t.me/sspai_group)
 *   iBeta 尝鲜派 官方用户讨论群:[https://t.me/ibetame](https://t.me/ibetame)
 *   库克的后厨 Cook’s Kitchen:[https://t.me/OnlineAppleUserGroup](https://t.me/OnlineAppleUserGroup)
+*   沉浸式翻译讨论:[https://t.me/+rq848Z09nehlOTgx](https://t.me/+rq848Z09nehlOTgx)
 *   科技无国界:[https://t.me/LifeAnaTech](https://t.me/LifeAnaTech)
+*   赚客吧 有奖一起赚:[https://t.me/zuanke8](https://t.me/zuanke8)
 *   Apple Watch 大集合:[https://t.me/apple_watch](https://t.me/apple_watch)
 *   Apple TV+:[https://t.me/AppleTVPlus](https://t.me/AppleTVPlus)
 *   Apple Arcade CN:[https://t.me/applearcadecn](https://t.me/applearcadecn)
 *   Apple 用户社群:[https://t.me/appleusergroup_tg](https://t.me/appleusergroup_tg)
+*   TVBox:[https://t.me/TVbox888](https://t.me/TVbox888)
 *   三星手机交流:[https://t.me/samsung_cn](https://t.me/samsung_cn)
 *   智能手机讨论组:[https://t.me/M_Phone](https://t.me/M_Phone)
 *   小米玩机交流群:[https://t.me/xiaomi6666](https://t.me/xiaomi6666)
+*   飞享一刻｜频道:[https://t.me/w37fhy](https://t.me/w37fhy)
 *   mimi:[https://t.me/Orz_mini](https://t.me/Orz_mini)
 *   みなもと しずか:[https://t.me/Orz_zayu](https://t.me/Orz_zayu)
 *   程序员技术资源分享群 (陈皓 (左耳朵耗子) 创建的群):[https://t.me/joinchat/FwAZpxdwmTHP2W1sPydPAQ](https://t.me/joinchat/FwAZpxdwmTHP2W1sPydPAQ)
@@ -484,7 +498,9 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   电报人:[https://t.me/three001](https://t.me/three001)
 *   Google Drive 无限容量:[https://t.me/google_drive](https://t.me/google_drive)
 *   跳蚤市场 - 科学上网交流等:[http://t.me/PharosMarketShopping](http://t.me/PharosMarketShopping)
+*   普通休闲书籍资源:[http://t.me/bookusefor4](http://t.me/bookusefor4)
 *   读舍 - 享受阅读时光:[https://t.me/shufm](https://t.me/shufm)
+*   写作交流:[https://t.me/writing_discuss](https://t.me/writing_discuss)
 *   iGame 游戏交流群:[https://t.me/gamecn](https://t.me/gamecn)
 *   电影爱好者交流组:[https://t.me/Moviemarket_group](https://t.me/Moviemarket_group)
 *   Emby 终点站:[https://t.me/EmbyPublic](https://t.me/EmbyPublic)
@@ -610,6 +626,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   微基主机讨论组 - 原 50KVM/50VZ:[https://t.me/network50_chat](https://t.me/network50_chat)
 *   Nathosts 主机交流群:[https://t.me/nathosts](https://t.me/nathosts)
 *   利器社群在 TG 上的分支:[http://t.me/fun_makers](http://t.me/fun_makers)
+*   人人影视字幕文件:[http://t.me/yyets_subtitles](http://t.me/yyets_subtitles)
 *   圆角水群:[https://t.me/UoVzCloud](https://t.me/UoVzCloud)
 *   中文独立博客:[https://t.me/indieBlogs](https://t.me/indieBlogs)
 *   黑苹果 osx86 项目中文讨论 / Hackintosh CHN Discussion:[https://t.me/osx86zh](https://t.me/osx86zh)
@@ -817,6 +834,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   沙雕根据地:[https://t.me/shadiaoo](https://t.me/shadiaoo)
 *   ACG 萌:[https://t.me/acg_moe](https://t.me/acg_moe)
 *   WSB 华尔街中文社区:[https://t.me/WSBetsZH](https://t.me/WSBetsZH)
+*   华尔街日报 RSS:[https://t.me/wsj_rss](https://t.me/wsj_rss)
 *   Satoshi Street Bets 中本街社区:[https://t.me/SatoshiStreetBetsZH](https://t.me/SatoshiStreetBetsZH)
 *   tsuPro Talk:[https://t.me/tsuPorn](https://t.me/tsuPorn)
 *   想尽办法看电视:[https://t.me/joinchat/MgUQ3B1apkzq3sqVzTFP0A](https://t.me/joinchat/MgUQ3B1apkzq3sqVzTFP0A)
@@ -1011,6 +1029,8 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 ###### 媒体[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%AA%92%E4%BD%93)
 
 *   Telegram 中文 NEWS:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
+*   阿里云盘发布频道:[https://t.me/Aliyundrive_Share_Channel](https://t.me/Aliyundrive_Share_Channel)
+*   Alist资源频道:[https://t.me/alistshare](https://t.me/alistshare)
 *   科技花（TestFlight）:[https://t.me/TestFlightCN](https://t.me/TestFlightCN)
 *   海龙说:[https://t.me/haotalk](https://t.me/haotalk)
 *   不客观 Not Objective:[https://t.me/notobjective](https://t.me/notobjective)
@@ -1041,6 +1061,8 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   OnePlus™:[https://t.me/OnePlus](https://t.me/OnePlus)
 *   程序员技术资源分享:[https://t.me/gotoshare](https://t.me/gotoshare)
 *   大虾的编程资源库 / 码农 / 程序员资源:[https://t.me/programmingsrchub](https://t.me/programmingsrchub)
+*   每日 AWESOME 观察:[https://t.me/awesomeopensource](https://t.me/awesomeopensource)
+*   每日无数猫:[https://t.me/miaowu](https://t.me/miaowu)
 *   IPN 播客网络:[https://t.me/ipnpodcast](https://t.me/ipnpodcast)
 *   《無次元》博客:[https://t.me/wuciyuan](https://t.me/wuciyuan)
 *   一天世界 博客:[https://t.me/yitianshijie](https://t.me/yitianshijie)
@@ -1158,6 +1180,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Iyouport:[https://t.me/iyouport](https://t.me/iyouport)
 *   o1xhack & friends🥤 分享 思考 科技 生活:[https://t.me/o1xinsight](https://t.me/o1xinsight)
 *   Newlearner の自留地:[https://t.me/NewlearnerChannel](https://t.me/NewlearnerChannel)
+*   NewlearnerのIT社群:[https://t.me/NewlearnerGroup](https://t.me/NewlearnerGroup)
 *   Awesome Collection:[https://t.me/awesome_collection](https://t.me/awesome_collection)
 *   Picacomic News:[https://t.me/PicACG](https://t.me/PicACG)
 *   Apple Tech News:[https://t.me/appletechnews](https://t.me/appletechnews)
